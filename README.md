@@ -132,3 +132,13 @@ Michael Dukakis & the Tank
 While running for president, candidate Michael Dukakis, created an ad that featured him inside a tank to show the Americans that he wasn’t as soft on defensive issues as people thought. George H. W. Bush then stated that the photo made him appear unfit as a military leader, due to the relaxed and unprofessional look of the photograph (this seems like a picture I would take while visited Disneyland with my family: the cars in the background, the helmet that looks like it will fall off, to the look on his face all convey the message of unprofessionalism. Dukakis ended losing pathetically in the election to George H. W. Bush.
 
 These news mistakes are somewhat hilarious. The first mistake was CNN making a technical error by placing Vladamir Putin’s picture as an identified terrorist. The second was a news source, The Chicago Tribune, accidentally announced the wrong winner to the 1948 US election, by announcing Dewey as the president instead of Truman. Based on the fact that as the world becomes more interconnected, news sources will continue to become major influences of our everyday decisions (consider how the Corona Virus was largely blown up by news organizations). Therefore, false information likely results in miss directed actions, which is not favorable for society. As an incentive for news sources to spread accurate information, I would argue that news sources should be required to pay reparations to people affected.
+
+
+
+
+
+
+
+
+
+*Date of Publish: October 25, 2021*
